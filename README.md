@@ -1,1 +1,1 @@
-![pixel_ring](https://github.com/user-attachments/assets/b98954e7-b470-435f-bc92-919a0ae7f17e)
+![pixel_ring_small](https://github.com/user-attachments/assets/e359577b-0d22-4c10-9c09-94a24d348ad9)
